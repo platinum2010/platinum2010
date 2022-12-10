@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @platinum2010
-- 👀 I’m interested in learning new things
+- 👀 I’m interested in learning cloud Computing
 - 🌱 I’m currently learning Blockchain
-- 💞️ I’m looking to collaborate on ICT Development
+- 💞️ I’m looking to collaborate on ICT Developments
 - 📫 How to reach me 2348063185336, samytrade2016@gmail.com
 
 <!---
